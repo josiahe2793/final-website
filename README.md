@@ -1,6 +1,6 @@
 
 
-#### Below is the template I used for this website, if 
+#### Below is the template I used for this website, if you'd like to use it as well it's here  
 
 ##### - Josiah E
 
